@@ -1,1 +1,1 @@
-http://www.qilonglong.top/
+qilonglong.top
